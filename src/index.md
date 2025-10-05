@@ -82,11 +82,3 @@ Every child deserves food, clean water, safety, and a future.  Because of you, f
 
 **Thank you for standing with Outreach for World Hope. Together, we are changing lives\!**
 
-Open items:  
-QR codes  
-Make it more Christ-focused?  
-OWH logo  
-Pictures:  
-	Bucket filter  
-	Open air fire  
-	Before/after
